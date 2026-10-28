@@ -1,0 +1,1 @@
+it is simple as it gets just talked to a freind and he said if the config ain't mine ain't using it so i decied to start using my own config since I have the ability to do so this is the first step to my successful  story I hope that one day a number of people will share in the spirt in setting up my config and enjoy my creativity as I have enjoyed other thas far 
