@@ -1,0 +1,2 @@
+-- Install and enable Hyprland plugins with hyprpm.
+-- Add plugin-specific configuration here, following that plugin's documentation.
